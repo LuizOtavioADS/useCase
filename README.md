@@ -9,3 +9,6 @@ de alguma atividade. Anos se passaram e poucos por centos do projeto entregue, �
 
 Respondendo a pergunta: "O resultado final foi inovador?" acho que a resposta ideal seria "O resultado final foi o necessário." Visando anos de trabalho atrasado e dinheiro gasto a mais do que necessário, um cenário em que o projeto é entregue com redução de custo é o cenário ideal!
 
+Link do MIRO:
+https://miro.com/app/board/uXjVLNAN5Uw=/?share_link_id=476900282236
+
